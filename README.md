@@ -24,9 +24,30 @@ https://www.youtube.com/watch?v=pU-wviJpKpo
 https://www.youtube.com/watch?v=UpV2480Gi1I
 
 ### Semana_3
+- Clase_5
+https://www.youtube.com/watch?v=1fhT4JzC95Y
 
+- Clase_6
+https://www.youtube.com/watch?v=-n7oIv_rDJE
+  - **PD_3**
+https://www.youtube.com/watch?v=rmeAALz4hNA
 
 ### Semana_4
+- Clase_7
+https://www.youtube.com/watch?v=ur1AoYWOVeM
 
+- Clase_8
+https://www.youtube.com/watch?v=HHUCrb3M6Fo
+
+- **PD_4**
+https://www.youtube.com/watch?v=2UT3e0pcqlg
 
 ### Semana_5
+- Clase_9
+https://www.youtube.com/watch?v=4-AI_nlRNM4
+
+- Clase_10
+https://www.youtube.com/watch?v=JIhRsgafaHI
+
+- **PD_5**
+https://www.youtube.com/watch?v=J764zrRNH_Q
